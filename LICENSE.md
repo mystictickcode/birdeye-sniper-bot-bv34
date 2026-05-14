@@ -1,4 +1,4 @@
-# 
+# elite Token Sniper for birdeye sniper bot | multi-chain-support & take-profit offers the most advanced birdeye sniper bot, with multi-chain-support and take-profit. Ideal for
 
 
 
